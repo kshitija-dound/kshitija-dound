@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kshitija-dound
-- 👀 I’m interested in learning
+- 👀 I’m interested in learning and help everyone win at life.
 - 🌱 I’m currently doing my masters
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
